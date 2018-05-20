@@ -1,0 +1,2 @@
+# rikzariidinfo
+fqster infor
